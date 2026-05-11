@@ -1,4 +1,4 @@
-# 
+# Enhance OneNote for Windows with advanced OneNote for Windows Automation | offline-access + rich-text-editing, the #1 automation. Includes offline-access and rich-text-editing for
 
 
 
